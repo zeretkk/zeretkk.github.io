@@ -1,0 +1,2 @@
+# zeretkk.github.io
+##INIT
